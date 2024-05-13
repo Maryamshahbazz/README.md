@@ -5,6 +5,8 @@
 - 📫 How to reach me:maryamghummam@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact:"Success is not just about reaching the destination; it's about embracing the journey, learning from every step, and never losing sight of the person you're becoming along the way."
+- ⚡ Fun fact:"Success is not just about reaching the destination; it's about embracing the journey, learning from every step, and never losing sight of the person you're becoming along the way."
+- ⚡ Fun fact:"Success is not just about reaching the destination; it's about embracing the journey, learning from every step, and never losing sight of the person you're becoming along the way."
 
 <!---
 Maryamshahbazz/Maryamshahbazz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
